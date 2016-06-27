@@ -39,6 +39,6 @@ Logging in to the company file
 •	Open the company file and log on.
 •	Browse to the computer where the company file is stored.
 
-Still having trouble with your QuickBooks? Save time and headache by getting in touch with our QuickBooks Customer Support for a quick resolution of your problem! At QuickBooks Technical Support, our certified and experienced QuickBooks executives will solve your problem in no time. All you need to do is call 1-800-518-1838!
+Still having trouble with your QuickBooks? Save time and headache by getting in touch with our QuickBooks Customer Support for a quick resolution of your problem! At QuickBooks Technical Support, our certified and experienced QuickBooks executives will solve your problem in no time. All you need to do is call 1-800-518-1838! More information to visit our website: http://www.iquickbookssupport.com/
 
 
